@@ -1,4 +1,4 @@
-#  
+#  Evernote for macOS custom Automation: reminders & calendar integration offers the most advanced Evernote for macOS automation, with reminders and calendar integration. Ideal for
 
 
 
